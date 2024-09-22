@@ -1,1 +1,1 @@
-"Ang Pogi mO talaga Sir!"
+"HI pogi"
